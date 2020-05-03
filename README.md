@@ -1,0 +1,2 @@
+# darkingnitro-bot
+daarking kralı
